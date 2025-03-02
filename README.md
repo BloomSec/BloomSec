@@ -20,10 +20,6 @@ Hi, I’m Blossom a tech enthusiast exploring IAM, cybersecurity, and innovation
 
 📬 Connect
 
-💼 [LinkedIn] | 📝 [Blog] | 💌 [blossomsunshine422@gmail.com] | 🐦 
+💼 [] | 📝 [] | 💌 [com] | 🐦 
 
-🎉 Fun Facts
-
-🚛 Ex-trucker turned techie | 🌐 Building BloomSEC (women in cyber) | 🎮 OSINT explorer | 🍵 Matcha lover
-
-Let’s connect & build something amazing! 💡✨
+Let’s connect & build something amazing! ✨
