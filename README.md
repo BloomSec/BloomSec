@@ -2,7 +2,7 @@ Welcome!
 
 
 
-Hi, I’m [Blossom]—a tech enthusiast exploring IAM, cybersecurity, and innovation. I love blending security with creativity to make tech more accessible!
+Hi, I’m Blossom a tech enthusiast exploring IAM, cybersecurity, and innovation. I love blending security with creativity to make tech more accessible!
 
 
 
